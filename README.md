@@ -1,2 +1,1 @@
 ipb.link/karnaugh_M0405241026_ArifahTalithaZahra_aboutme61
-ipb.link/karnaugh_M0405241026_ArifahTalithaZahra_index.html
