@@ -1,1 +1,1 @@
-ipb.link/karnaugh_M0405241026_ArifahTalithaZahra_aboutme61
+# karnaugh_M0405241026_ArifahTalithaZahra_aboutme61
