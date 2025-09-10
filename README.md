@@ -1,0 +1,1 @@
+# karnaugh_M0405241026_ArifahTalithaZahra
